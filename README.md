@@ -1,1 +1,1 @@
-BRUH
+Here's the submission for Project 1. I hope you like it!
